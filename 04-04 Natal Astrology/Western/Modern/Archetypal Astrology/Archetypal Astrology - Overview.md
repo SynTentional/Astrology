@@ -5,3 +5,6 @@
 The way that this form of astrology plays out manifests as an ability to see patterns between stories in literature and real life events. The ability to correspond aspects of character, environment and other such themes (lighting, color, etc.) with the *know* archetypes of the planets allows one to see the ways in which their lives correspond to the **planetary conditions** imposed upon them at that time.
 
 For example, someone with Mars in Scorpio in their Birth Chart might have certain *masculine, assertive, decision-based* qualities of their life become augmented by the *watery, deep feeling, and rather intense* qualities of Scorpio.
+
+### The Uranus Archetype
+The archetypal principle of *freedom*, *awakening,* and *revolution*, Uranus manifests in experiences of **sudden** change -- at once *liberating* and *disturbing*, *jolting* and *electrifying*. It is that principle that pushes us to go our *own way* in life, to experiment and *deviate* from the norm, to challenge the status quo and birth the new. It is the *trickster*-like principle that upsets our plans and intentions, revealing the **limitations of our ego**. It inspires us to become free and to live **authentically** and **creatively**, manifesting our unique genius of our own individual life.
