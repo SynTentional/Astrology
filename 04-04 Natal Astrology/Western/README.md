@@ -1,0 +1,5 @@
+**Western astrology** is the system of astrology most popular in Western countries. Western astrology is historically based on **Ptolemy's  Tetrabiblios** (2nd Century CE), which in turn was a continuation of **Hellenistic** and ultimately **Babylonian** traditions.
+
+Western astrology is largely **horoscopic**, that is, it is a form of **divination** based on the construction of a **horoscope** for an exact moment, such as a person's birth as well as location (since time zones may or may not affect a person's birth chart), in which various cosmic bodies are said to have an influence. Astrology in western popular culture is often reduced to **sun sign astrology** which considers only the individual's date of birth (i,e. the "position of the Sun" at that date).
+
+**Note**: Astrology is a **psuedoscience** (which doesn't mean that it's *wrong*, just that is not scientific) and has consistently failed **experimental** and **theoretical** verification.

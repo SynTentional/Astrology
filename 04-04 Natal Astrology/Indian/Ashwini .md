@@ -1,0 +1,1 @@
+Ashwini is a Ketu ruled nakshatra and Ketu's energy is verry absorptive. I have Venus in Ashwini which explains why I am attracted to these vampiric ass men!

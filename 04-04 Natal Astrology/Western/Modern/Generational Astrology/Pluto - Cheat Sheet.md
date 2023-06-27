@@ -1,0 +1,5 @@
+# *<u>Pluto - Overview</u>*
+Pluto is a generational planet. When Pluto is in a sign, the native whose sign ascendant falls in that sign become the authority on anything that concerns them. Pluto destroys weak foundations and other such structures. Pluto is linked to the concept of *emotional underbellies* as it brings things to the surface of one's mind. Thoughts and ideas otherwise repressed by society or oneself.
+
+## Qualities 
+In astrology, Pluto is a planet that **syhmbolizes** the boundary between a **soul's abode** and the unseen and unknown side of life. (Fear of the Unknown comes from this). In Modern interpretations, **Pluto** rules the zodiacal sign of **Scorpio** and the God of the Underworld. Pluto represents *death, regeneration,* and *renewall*. It is associated with **intense transformations**, **power struggles**, and **penetratring insight**. It also relates to *violence, revenge, crime* and *depravity* but also *healing* and *new opportunities*. Pluto brings change that is often **necessary for survival** and **overcoming tragedy**.

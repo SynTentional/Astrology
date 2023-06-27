@@ -1,0 +1,1 @@
+Neptune ruled stone. Helps with choosing the right words when speaking to someone. I kind of want a necklace that has Aquamarine on it. I could go to the  Stone Room and see if they have one!

@@ -1,0 +1,3 @@
+# Kabbalistic [[Astrology]] 
+Venus is cold and damp, and corresponds to #fructification and growth, and the *lustful mind.* In its beneficial phase, it offers cleanliness, love, laughter, joy, dancing, pleasant conversation and love for children, as well as devotion to justice and to worship. Its negative influences include incessant longing for lustful sexual intercourse, drunkenness, gambling, giving of false testimony, and excessive desires for everything. In the natal chart, it represents the mother, daughters, and younger sisters.
+![[intelligenceofvenus.webp]]
