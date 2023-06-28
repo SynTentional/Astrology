@@ -1,0 +1,2 @@
+## Issues with the 'ABC' Method
+It is worth noting that traditional astrology does not equate the planets, the signs, and the houses in the same way that modern astrology does. The ABC method (things in astrology often being defined as... for example: Moon = Cancer = Fourth House.) In traditional astrology Moon and Cancer are two different things. It is true that the Moon rules Cancer, but that is not the same as saying that Moon equals Cancer or that Moon is in Cancer.

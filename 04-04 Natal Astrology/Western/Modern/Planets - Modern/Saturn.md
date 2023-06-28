@@ -1,0 +1,4 @@
+# Saturn Overview
+Saturn symbolizes time, it is the higher octave of the moon and is **feminine** in occult practice. Saturn rules over cycles of life. Saturn, perhaps, can be associated with the "Crone" or the Waxing Crescent of the Moon. Not only is Saturn the higher octave of the Moon, one of the signs it rules, Capricorn, is sister signs (perhaps the older sister) with Cancer, which we know is ruled by the moon.
+
+While Cancer deals with the quickness of time, Capricorn deals with the slowness of time. Similarly acts the Leo/Aquarius axis. This time, it deals with Ego where Aquarius (Saturn ruled) is the contraction of the ego, the lessening of spirit and ego death and Leo is the release of the ego, the general gestation of the ego and the birth of a new ego.

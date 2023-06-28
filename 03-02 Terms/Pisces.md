@@ -8,7 +8,7 @@ Now it has advanced into an understanding of [[Double Consciousness]]
 
 It also relates to [[Spirituality is Real]] and something else that I can't think of now. I used to think being a Pisces was about hearing #voices .
 
-One of the lunar mansions in Pisces is [[Uttara Bhadrapada]] which is ruled by [[Shani]] or [[Saturn]].
+One of the lunar mansions in Pisces is [[Uttara Bhadrapada]] which is ruled by [[Shani]] or [[04-00 Hobbies/04-04 Astrology/03-02 Terms/Saturn]].
 
 [[Feeling like I'm cursed]] is a real thing that happens with Pisces
 

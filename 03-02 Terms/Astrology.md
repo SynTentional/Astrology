@@ -24,9 +24,9 @@ I tend to enjoy Vedic astrology because the approach to understanding it is a lo
 
 # Personal Chart + Significations
 *A collection of aspects relevant to my life with their corresponding astrological archetypes.*
-[[Saturn]] Chart Ruler (Indicative of: My Dad, Grandpa, and the deceased)
+[[04-00 Hobbies/04-04 Astrology/03-02 Terms/Saturn]] Chart Ruler (Indicative of: My Dad, Grandpa, and the deceased)
 [[Midheaven]] 
-[[04-00 Hobbies/03-00 Astrology/03-02 Terms/Mars]] (Indicative of: My Brothers, to whom I have to balance out my affections)
+[[04-00 Hobbies/04-04 Astrology/03-02 Terms/Mars]] (Indicative of: My Brothers, to whom I have to balance out my affections)
 [[Cancer]]
 [[Neptune]]
 [[Uranus]]

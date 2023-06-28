@@ -13,7 +13,7 @@ This is generally a very negative deterministic interpretation.
 
 According to the Sidereal Zodiac, my ascendant is at 25° Capricorn, putting it in the Dhanishta Nakshatra in the 1st Pada. The English translation of Dhanishtha is "Wealthiest" or "To Be The Most Famous / Wealthiest"
 
-From my understanding, Dhanishtha Nakshatra has the energy of [[Saturn]] & [[04-00 Hobbies/03-00 Astrology/03-02 Terms/Mars]], which to me, makes sense in terms of goal accomplishments requiring energy (willpower) & discipline. The wealth association seems to be very interesting given recent scenarios where people have seen me as 'rich' or my life comes off as the life of someone who is wealthy to people who don't know me.
+From my understanding, Dhanishtha Nakshatra has the energy of [[04-00 Hobbies/04-04 Astrology/03-02 Terms/Saturn]] & [[04-00 Hobbies/04-04 Astrology/03-02 Terms/Mars]], which to me, makes sense in terms of goal accomplishments requiring energy (willpower) & discipline. The wealth association seems to be very interesting given recent scenarios where people have seen me as 'rich' or my life comes off as the life of someone who is wealthy to people who don't know me.
 
 ## Jyotish
 

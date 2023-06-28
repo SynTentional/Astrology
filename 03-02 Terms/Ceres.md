@@ -5,7 +5,7 @@ banner_icon: 🪴
 # Ceres
 
 ![[Pasted image 20230509142658.png]]
-Ceres (pronounced /ˈsɪəriːz/, SEER-eez) is a **[[dwarf planet]] in the asteroid belt between the orbits of [[04-00 Hobbies/03-00 Astrology/03-02 Terms/Mars]] and [[Jupiter]]**
+Ceres (pronounced /ˈsɪəriːz/, SEER-eez) is a **[[dwarf planet]] in the asteroid belt between the orbits of [[04-00 Hobbies/04-04 Astrology/03-02 Terms/Mars]] and [[Jupiter]]**
 
 **Character**
 	Goddess of Agriculture, Earth Mother
